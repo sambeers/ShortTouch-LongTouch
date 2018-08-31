@@ -21,4 +21,5 @@ Donate
 
 If you enjoyed this project please consider sending me a couple dollars as a thank you for the work :)
 
-[PayPal](https://paypal.me/sammurphey)
+[PayPal](https://paypal.me/sammurphey) · [Venmo](https://venmo.com/sammurphey) · [KoFi](https://kofi.com/sammurphey)
+
